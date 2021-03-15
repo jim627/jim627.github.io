@@ -14,4 +14,4 @@
 
 ##我猜你會喜歡
 [我喜歡的歌](https://www.youtube.com/watch?v=iOs7Ykmhew4)
-![我喜歡的歌](https://www.youtube.com/watch?v=iOs7Ykmhew4)
+![巴別塔慶典](https://i.ytimg.com/vi/iOs7Ykmhew4/maxresdefault.jpg)
